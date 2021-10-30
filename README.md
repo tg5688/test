@@ -1,1 +1,1 @@
-NOWE
+NOWE na story
